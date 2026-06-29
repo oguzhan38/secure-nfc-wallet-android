@@ -1,1 +1,1 @@
-Details in Project
+Details in Project Files
